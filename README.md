@@ -1,6 +1,6 @@
 This account is initialized by one...but meant for two. 
 
-There might be a loooong story about a silly boy and a special girl in the future. At least I hope so.
+There will be a loooong story to be written, which is about a silly boy zbc and a special girl rhp meet together in the future. At least I hope so.
 
 If not, then just leave me alone...with lifelong sorrow and regret.
 
