@@ -1,10 +1,10 @@
 This account is initialized by one...but meant for two. 
 
-There might be a loooong story about a silly boy and a special girl? I hope so.
+There might be a loooong story about a silly boy and a special girl in the future. At least I hope so.
 
 If not, then just leave me alone...with lifelong sorrow and regret.
 
-I wasn't there for her when she needed me. Why would I expect she will eventually be here for me?
+I wasn't there for her when she needed me. Why would I arrogantly expect she will eventually be here for me?
 
                               
        \`*-.                    
