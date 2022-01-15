@@ -1,8 +1,8 @@
 This account is initialized by one...but meant for two. 
 
-There will be a loooong story to be written, which is about a silly boy zbc and a special girl rhp meet together in the future. At least I hope so.
+There will be a loooong story to write, which is about a silly boy and a special girl meet each other again in the future. At least I hope so.
 
-If not, then just leave me alone...with lifelong sorrow and regret.
+If not, then just leave me alone...with lifelong sorrow and regret. (I am exaggeratting. But maybe half-lifelong?)
 
 I wasn't there for her when she needed me. Why would I arrogantly expect she will eventually be here for me?
 
