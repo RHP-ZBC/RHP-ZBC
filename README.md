@@ -1,11 +1,10 @@
 This account is initialized by one...but meant for two. 
 
-There will be a loooong story to write, which is about a silly boy and a special girl meet each other again in the future. At least I hope so.
+There will be a loooong story to write, about a silly boy and a special girl meeting each other again in the future. At least I hope so.
 
-If not, then just leave me alone...with lifelong sorrow and regret. (I am exaggeratting. But maybe half-lifelong...)
+If not, then just leave me alone...with lifelong sorrow and regret. (I am exaggerating. But maybe half-lifelong...)
 
 I wasn't there for her when she needed me. Why would I arrogantly expect she will eventually be here for me?
-
                               
        \`*-.                    
         )  _`-.                 
@@ -22,7 +21,7 @@ I wasn't there for her when she needed me. Why would I arrogantly expect she wil
        .*' /  .*' ; .*`- +'  `*' 
       `*-*   `*-*  `*-*'
       
-If you want, we can code and write interesting stuffs together and make this little place as our playground.
+If you want, we can code and write exciting stuff together and make this little place our cozy playground.
 
 
 
